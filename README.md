@@ -13,7 +13,7 @@
 - Discord: eridirk
 # rules for interaction
 - I love talking to people and interact freely!
-- Do not interact if transphobic, homophobic, "endo-system", zionist etc..
+- Do not interact if transphobic, homophobic, "endo-system", zionist, proship, etc..
 - I block and hide at my own discretion.
 - I don't involve myself with stupid internet drama, I will just block you.
 # fandoms
