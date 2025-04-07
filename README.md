@@ -14,6 +14,7 @@
 # rules for interaction
 - I love talking to people and interact freely!
 - Do not interact if transphobic, homophobic, "endo-system", zionist, proship, etc..
+- I am anti-harrassment, however I will just block things I don't want to see.
 - I block and hide at my own discretion.
 - I don't involve myself with stupid internet drama, I will just block you.
 # fandoms
